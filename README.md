@@ -1,0 +1,1 @@
+# miui_honor_3c_lite_translate
